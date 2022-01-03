@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @izzatulloh0110
+- 👋 Hi, I’m Izzatulloh. I'm 21 years. I live in Tashkent
 - 👀 That’s exactly what I’m interested in when I focus on something 
 - 🌱 I’m currently learning arabic language
 - 💞️ I’m looking to collaborate on ...
