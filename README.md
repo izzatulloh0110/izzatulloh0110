@@ -1,6 +1,7 @@
-- 👋 Hi, I’m Izzatulloh. I'm 21 years. I live in Uzbekistan
+- 👋 Hi, I’m Izzatulloh. I'm 20 years. I live in Uzbekistan🇺🇿
 - 👀 That’s exactly what I’m interested in when I focus on something 
-- 🌱 I’m currently learning arabic language
+- 🌱 I’m currently learning English language since 2021 
+- 💻♾ I study at PDP Academy in Tashkent.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
